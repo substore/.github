@@ -1,1 +1,1 @@
-![banner](https://user-images.githubusercontent.com/59238070/194098589-eb4c526f-f52a-4dd4-acf4-9fa23058e2fb.png)
+![blue-green-banner-marketing](https://user-images.githubusercontent.com/59238070/199230944-69289176-cd65-484e-b5e9-7fb9cb1bd82c.png)
